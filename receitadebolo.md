@@ -1,0 +1,10 @@
+# Receita de Bolo
+
+### Ingredientes
+
+- 2 xícaras (chá) de açúcar
+- 3 xícaras (chá) de farinha de trigo
+- 4 colheres (sopa)
+- 3 ovos
+- 1 e 1/2 xícara (chá) de leite
+- 1 colher (sopa
